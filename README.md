@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me instagram @xxl.mayah
 - 😄 Pronouns: she/they
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i love astrology!
 
 <!---
 s-payne16/s-payne16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
